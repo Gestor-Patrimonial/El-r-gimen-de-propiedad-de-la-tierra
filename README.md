@@ -1,1 +1,2 @@
-# El-r-gimen-de-propiedad-de-la-tierra
+# El-régimen-de-propiedad-de-la-tierra
+La consideración exclusiva de las chacras cultivadas con cereales y lino se puede efectuar mediante las cifras que contiene el Anuario Agropecuario del Ministerio de Agricultura de la Nación. Prestaremos atención exclusiva a ambos extremos de las etapas que se desenvuelven desde el comienzo de la primera guerra hasta la crisis de 1930. El referido Anuario consigna el número de chacras destinadas al cultivo de cereales y lino, con excepción del maíz, en las diversas provincias de la zona litoral.
